@@ -1,0 +1,1 @@
+Helloooo this is permissions for Shell :) Slay queens idk if this will ever be read, but i'm just slayin' over here :) 
